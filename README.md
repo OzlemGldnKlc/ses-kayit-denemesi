@@ -1,0 +1,1 @@
+# ses-kayit-denemesi
